@@ -2,11 +2,13 @@
 
 
   :# call me xei or gnash
+
+
+- > play games with me
+  > mhur ; yellow kirishima main
+  > fortnite ; VeryHndsmAwk
+  > dead by daylight
   
-yellow Kirishima main ; play mhur w me! 
-
-
-- > fortnite/dbd lvr
 dont be shy to int; i have no friends :<
 
 
