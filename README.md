@@ -1,7 +1,7 @@
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
 
-  :# call me ei or gnash
+  :# call me xei or gnash
   
 yellow Kirishima main ; play mhur w me! 
 
