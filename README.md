@@ -4,9 +4,9 @@
   :# call me xei or gnash
 
 
-- > play games with me
-  > mhur ; yellow kirishima main
-  > fortnite ; VeryHndsmAwk
+- > play games with me ! - 
+  > mhur ; yellow kirishima main - 
+  > fortnite ; VeryHndsmAwk - 
   > dead by daylight
   
 dont be shy to int; i have no friends :<
