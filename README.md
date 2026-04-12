@@ -12,5 +12,5 @@
 dont be shy to int; i have no friends :<
 
 
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ![made by me](https://media.discordapp.net/attachments/1103862669250920478/1492750945518620874/Untitled34_20260408032003.png?ex=69dc7827&is=69db26a7&hm=0d6afd942e5e4d640cad64c99f4d6cfe74e3a8b47d6d770fd346e6153d1f6806&=&format=webp&quality=lossless&width=723&height=503)
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ![made by me](https://media.discordapp.net/attachments/1103862669250920478/1492990989378523206/Untitled11_20260412165136.png?ex=69dd57b6&is=69dc0636&hm=f61809d1cd1570afe6f8ade23e117f7d2f05514ff81ff3aa2d8a3edb785088f9&=&format=webp&quality=lossless&width=723&height=503)
 
