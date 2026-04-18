@@ -6,7 +6,7 @@
 
 - > play games with me ! - 
   > mhur ; yellow kirishima main - 
-  > fortnite ; VeryHndsmAwk - 
+  > fortnite ; ---- - 
   > dead by daylight
   
 dont be shy to int; i have no friends :<
