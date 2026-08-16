@@ -1,4 +1,4 @@
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄  My best friends ! Spin , me and ducki! art by @frikisenpai69 
+▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄   art by @frikisenpai69 
 
 [![The only people who dont make me feel like i talk to much or a burden to be around, i love them so much, i cant help but brag](https://i.postimg.cc/VsSYC43s/IMG-3919.webp)](https://postimg.cc/NLcqh8sZ)
 
