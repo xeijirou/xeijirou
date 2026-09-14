@@ -1,6 +1,4 @@
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄   Art collab w spin lol
 
-[![sipncollab.webp](https://i.postimg.cc/cLDRc48H/sipncollab.webp)](https://postimg.cc/21ZLkYGR)
 
 [![USUSUS](https://i.postimg.cc/nc00fYh7/Untitled44-20260809195739.webp)](https://postimg.cc/mt1QQ9M2)
 
